@@ -2,7 +2,7 @@
 
 ## Sr. Security Operations & Cloud Infrastructure Engineer
 
-📍 McDonough, GA &nbsp;·&nbsp; [Seth AT SethFloydJr.com](mailto:Seth AT SethFloydJr.com) &nbsp;·&nbsp; [sethfloydjr.com](https://sethfloydjr.com) &nbsp;·&nbsp; Open to opportunities
+📍 McDonough, GA &nbsp;·&nbsp; Seth AT SethFloydJr.com &nbsp;·&nbsp; Open to opportunities
 
 ---
 
